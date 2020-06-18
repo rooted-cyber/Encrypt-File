@@ -12,20 +12,20 @@
  </pre>
  <br />
  
+ # Contact :
  
+ ## Facebook ID : <b>www.facebook.com/maruf.alam.94043626</b>
  
- ##Facebook ID : <b>www.facebook.com/maruf.alam.94043626</b>
+ ## Facebook page : <b>www.facebook.com/rootedcyber</b>
  
- ##Facebook page : <b>www.facebook.com/rootedcyber</b>
- 
-##Instagram ID :<b>www.instagram.com/rootedcyber</b>
+ ## Instagram ID :<b>www.instagram.com/rootedcyber</b>
 
- ##Telegram 1st ID ;<b>https://t.me/rootedcyber</b>
+ ## Telegram 1st ID ;<b>https://t.me/rootedcyber</b>
  
- ##Telegram Group ;<b>https://t.me/rootedcyber1</b>
+ ## Telegram Group ;<b>https://t.me/rootedcyber1</b>
  
- ##Telegram 2nd ID ;<b>https://t.me/rootedcyber2</b>
+ ## Telegram 2nd ID ;<b>https://t.me/rootedcyber2</b>
  
- ##Whatsapp Group :<b>https://chat.whatsapp.com/BdCWDT2g35y67yV8DNHvfa</b>
+ ## Whatsapp Group :<b>https://chat.whatsapp.com/BdCWDT2g35y67yV8DNHvfa</b>
  
  
